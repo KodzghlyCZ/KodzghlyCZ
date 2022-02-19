@@ -2,8 +2,8 @@
 - 👀 I’m interested in sex
 - 🌱 I’m currently learning sex
 - 💞️ I’m looking to collaborate on sex
-  🇫:kodzghly
-  📷:kodzghly_cz
+  -🇫:kodzghly
+  -📷:kodzghly_cz
   
    
 
